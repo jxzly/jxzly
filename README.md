@@ -1,4 +1,4 @@
-对经济学感兴趣，学过物理与天文，现在在做AI制药，想健康的活很久。
+对经济学感兴趣，学过物理与天文，现在在做AI制药，想健康地活很久。
 
 Interested in economics, studied physics and astronomy, now working on AI for drug discovery and want to live a long healthy life.
 
